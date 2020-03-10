@@ -1,0 +1,2 @@
+geliasi!
+dele la soti.
